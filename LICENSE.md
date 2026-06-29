@@ -1,4 +1,4 @@
-# 
+# New Adobe Acrobat Pro extensions for Mac OS | Secure Adobe Acrobat Pro extensions for PC Windows. Featuring policy compliance and state tax calculation — optimized for maximum performance on every platform.
 
 
 
